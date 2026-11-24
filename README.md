@@ -22,6 +22,8 @@
 
 ### 🎮 [TRACK THE LATEST GTA 6 PORT UPDATES →](https://gta6port.app/)
 
+https://gta-6-port.github.io/gta6port/
+
 **Latest News · Community Projects · Verified Sources · GTA 6 PC Port Timeline**
 
 </div>
